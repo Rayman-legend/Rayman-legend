@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning : **Front End - Web derivatives**
 
-- ⚡ Fun fact (Joke) **NASA can be hacked with html**
+- ⚡ **Work hard for your goals ! **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
