@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning : **Front End - Web derivatives**
 
-- ⚡ **Work hard for your goals ! **
+- ⚡ Work hard for your goals !
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
